@@ -1,5 +1,5 @@
 # expose_AI
-Exposing AI (itsjustai)
+Exposing AI (itsjustai) (HE CHANGED HIS NAME!!) TO: (mystery0man)
 
 DISCORD ID: 716355135290474628
 
